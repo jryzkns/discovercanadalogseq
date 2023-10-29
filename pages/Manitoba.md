@@ -1,0 +1,8 @@
+- First province to grant voting rights to women
+- economy is based on
+	- agriculture
+	- mining
+	- hydro-electric power generation
+- [[Winnipeg]]
+- important centre of Ukranian culture
+-

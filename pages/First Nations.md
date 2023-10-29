@@ -1,0 +1,5 @@
+- Refers to all [[Aboriginal Peoples]] who are not [[Inuit]] or [[Metis]]
+- In the 1970s, the term First Nations began to be used
+	- When Europeans explored [[Canada]] they found all regions occupied by native peoples
+	- The natives were called "Indians" because the first explorers thought they were in the East Indies
+- About half live on reserve land in about 600 communities while the other half live off-reserve, mainly in urban centres

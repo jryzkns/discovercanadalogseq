@@ -1,0 +1,1 @@
+- the party in power holds less than half of the seats in the [[House of Commons]]

@@ -1,0 +1,3 @@
+- John Buchan, the 1st Baron Tweedsmuir, was a popular Governor General of Canada (1935 - 1940)
+- " [Immigrant groups] should retain their individuality and each make its contributions to the national character. [Each could learn] from the other, and ... while they cherish their own special loyalties and traditions, they cherish not less that new loyalty and tradition which springs from their unions"
+- Notably wore a Blood (Kainai [[First Nations]] ) headdress

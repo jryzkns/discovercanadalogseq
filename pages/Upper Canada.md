@@ -1,0 +1,2 @@
+- Present Day Ontario
+- Mainly Loyalist, Protestant and English-speaking

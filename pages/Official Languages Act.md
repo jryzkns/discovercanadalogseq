@@ -1,0 +1,6 @@
+- Passed in 1969
+- guarantees French and English services in the federal government across Canada
+- Three main objectives:
+	- Establish equality between French and English in Parliament, the Government of Canada and institutions subject to the Act
+	- Maintain and develop official language minority communities in Canada
+	- Promote equality of French and English in Canadian society

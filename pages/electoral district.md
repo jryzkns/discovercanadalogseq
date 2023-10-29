@@ -1,0 +1,2 @@
+- aka riding or constituency
+- a geographical area represented by a [[Member of Parliament]] when they are voted into [[Parliament]]

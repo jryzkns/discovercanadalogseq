@@ -1,0 +1,3 @@
+- The movement for [[Quebec]] sovereignty gained strength but was defeated in a referendum in the province in 1980
+- Sovereignty was again defeated in a second referendum in 1995
+- The autonomy of Quebec within Canada remains a lively topic

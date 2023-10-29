@@ -1,0 +1,1 @@
+- Meant as a medium to settle disputes

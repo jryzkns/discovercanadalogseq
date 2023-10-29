@@ -1,0 +1,3 @@
+- Mining is a significant part of its economy
+	- historical gold rush site
+- holds record for coldest temperature ever recorded in Canada (-63 C)

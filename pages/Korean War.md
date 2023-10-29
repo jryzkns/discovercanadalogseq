@@ -1,0 +1,2 @@
+- A war that Canada participated in as part of the [[United Nations]]
+- 500 dead 1,000 wounded

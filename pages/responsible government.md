@@ -1,0 +1,2 @@
+- Ministers of the Crown must have the support of a majority of the elected representatives in order to govern
+- If the government loses a confidence vote in the assembly in must resign

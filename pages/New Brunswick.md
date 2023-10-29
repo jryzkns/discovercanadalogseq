@@ -1,0 +1,16 @@
+- The only officially bilingual province
+	- 1/3 live and work in French
+- Situated in the Appalachian Range
+- founded by the United Empire [[Loyalist]]s
+- Has the second largest river system on North America's Atlantic coastline, the St. John River System
+- Principal Industries:
+	- Forestry
+	- Agriculture
+	- Fishery
+	- mining
+	- food processing
+	- tourism
+- Saint John is the largest city, port and manufacturing centre
+- Moncton is the principal Francophone Acadian centre
+- Fredericton, the historical capital
+- The province's pioneer [[Loyalist]] and French cultural heritage and history come alive in street festivals and traditional music

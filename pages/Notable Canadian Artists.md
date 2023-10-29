@@ -1,0 +1,37 @@
+- Canadians have made significant contributions to literature in English and in French
+- Novelists, poets, historians, educators, and musicians have had a significant cultural impact
+- Men and women of letters:
+	- Stephen Leacock
+	- Louis Hemon
+	- Sir Charles G.D. Roberts
+	- Pauline Johnson
+	- Emile Nelligan
+	- Robertson Davies
+	- Margaret Laurence
+	- Mordecai Richlet
+- Musicians:
+	- Sir Ernest MacMillan
+	- Healey Willian
+- Writers:
+	- Joy Kogawa
+	- Michael Ondaatje
+	- Rohinton Mistry
+- Visual Arts:
+	- Group of Seven
+		- founded in 1920
+		- developed a style of painting to capture the rugged wilderness landscapes
+	- Emily Carr
+		- painted the forests and Aboriginal artifacts of the West Coast
+	- Les Automatistes
+		- pioneers of modern abstract art in the 1950s
+		- most notably Jean-Paul Riopelle
+	- Louis-Phillippe Hebert
+		- celebrated schulptor of historical figures
+	- Kenojuak Ashevak
+		- pioneered modern inuit art with etchings. prints and soapstone sculptures
+- Film Makers
+	- Denys Arcand
+		- popular in Quebec and across the country
+		- won international awards
+	- Norman Jewison
+	- Atom Egoyan

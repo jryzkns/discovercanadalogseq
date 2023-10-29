@@ -1,0 +1,1 @@
+- The word "kanata", meaning "village" in the Iroquis' language is the basis for the naming of canada

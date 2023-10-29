@@ -1,0 +1,9 @@
+- From 1864 to 1867, representatives of [[Nova Scotia]], [[New Brunswick]], and [[Province of Canada]], with British support, worked together to establish a new country,
+	- These men are known as the [[Fathers of Confederation]]
+- Two levels of government are created, [[federal government]] and [[provincial government]]
+- The [[Province of Canada]] was split into [[Ontario]] and [[Quebec]], which, together with [[New Brunswick]] and [[Nova Scotia]], formed the new country called the [[Dominion of Canada]]
+- Each province would elect its own legislature and have control of such areas as education and health
+- The British Parliament passed the [[British North America Act]] in 1867
+- The [[Dominion of Canada]] was officially born on [[July 1, 1867]]
+- Until 1982, [[July 1]] was celebrated as [[Dominion Day]] to commemorate the day that Canada became a self-governing Dominion
+	- Today it is officially known as [[Canada Day]]

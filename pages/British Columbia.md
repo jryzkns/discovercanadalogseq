@@ -1,0 +1,18 @@
+- Canada's westernmost province
+- population of 4 million
+- about half of all goods produces in BC are forestry products
+	- lumber
+	- newsprint
+	- pulp
+	- paper products
+- known for
+	- mining
+	- fishing
+	- fruit orchards
+	- wine
+- has the most extensive park system in Canada
+	- approx 600 provincial parks
+- Large asian community
+- [[Victoria]] is the capital
+	- tourist centre
+	- headquarter of the navy's Pacific fleet

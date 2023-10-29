@@ -1,0 +1,5 @@
+- It is said that the lily flower ("fleur-de-lys") was adopted by the French king in the year 496
+- Symbol of French royalty for more than 1,000 years, including the colony of [[New France]]
+- Revived at [[Confederation]], the fleur-de-lys was included in the Canadian Red Ensign
+- In 1948 [[Quebec]] adopted its own flag, based on the cross and the fleur-de-lys
+-

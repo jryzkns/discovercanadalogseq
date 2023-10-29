@@ -1,0 +1,7 @@
+- More than half of people in Canada live in cities and towns near the Great Lakes and St.Lawrence River in southern Quebec and Ontario
+- Southern Ontario and Quebec have cold winters and warm humid summers
+- Together, Ontario and Quebec produce more than 3/4 of all Canadian manufactured goods
+	- known as the industrial and manufacturing heartland of Canada
+- Provinces
+	- [[Quebec]]
+	- [[Ontario]]

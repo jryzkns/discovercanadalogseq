@@ -1,0 +1,4 @@
+- located on the Ottawa River
+- Chosen as the capital in 1857 by [[Queen Victoria]]
+- Canada's fourth largest metropolitan area
+- The National Capital Region, 4,700 square kilometers surrounding Ottawa, preserves and enhances the area's built heritage and natural environment

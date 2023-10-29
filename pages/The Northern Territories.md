@@ -1,0 +1,10 @@
+- one third of Canada's land mass but only have 100,000 in heads
+- lane of the midnight sun
+	- at the height of summer, the sun can be up 24 hours
+	- in winter, the sum disappears and darkness sets in for months
+- mostly made on tundra
+	- no trees and soil is permanently frozen
+- Provinces
+	- [[Nunavut]]
+	- [[Northwest Territories]]
+	- [[Yukon Territory]]

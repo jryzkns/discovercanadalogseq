@@ -1,0 +1,1 @@
+- appointed by the [[Governor General]] on the advice of the [[Prime Minister]]

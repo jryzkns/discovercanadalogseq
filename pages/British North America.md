@@ -1,0 +1,1 @@
+- Comprising of [[Upper Canada]], [[Lower Canada]], and other Atlantic British colonies

@@ -1,0 +1,3 @@
+- Some Canadians immigrate from places where they have experienced warfare or conflict
+- Such experiences do not justify brining to [[Canada]] violent, extreme, or hateful prejudices
+- In becoming Canadian, newcomers are expected to embrace democratic principles such as the rule of law

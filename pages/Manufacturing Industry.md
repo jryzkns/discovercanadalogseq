@@ -1,0 +1,9 @@
+- Manufactured products include:
+	- paper
+	- high technology equipment
+	- aerospace technology
+	- automobiles
+	- machinery
+	- food
+	- clothing
+	- many others

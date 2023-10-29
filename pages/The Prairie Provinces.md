@@ -1,0 +1,7 @@
+- Rich in energy resources
+- fertile farmlands
+- mostly dry, cold winters and hot summers
+- Provinces
+	- [[Manitoba]]
+	- [[Saskatchewan]]
+	- [[Alberta]]

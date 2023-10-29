@@ -1,0 +1,2 @@
+- Comprises of the [[Prime Minister]] and the [[Cabinet minister]] s
+- Prepare budget and propose most new laws

@@ -1,0 +1,2 @@
+- a champion of democracy and French Language rights
+- became the first leader of a [[responsible government]] in the Canadas

@@ -1,0 +1,15 @@
+- [[Sir Leonard Tilley]], an elected official and one of the [[Fathers of Confederation]] from [[New Brunswick]], suggested the term "Dominion of Canada" in 1864
+	- Inspired by Psalm 72 in the Bible which refers to "dominion from seas to sea and from the river to the ends of the earth"
+		- The phrase embodies the vision of building a powerful, united, wealthy and free country that spanned a continent
+- The Dominion expanded over time to include other provinces
+	- 1867: [[Ontario]], [[Quebec]], [[Nova Scotia]], [[New Brunswick]]
+	- 1870: [[Manitoba]], [[Northwest Territories]]
+	- 1871: [[British Columbia]]
+	- 1873: [[Prince Edward Island]]
+	- 1880: Transfer of the Arctic Islands to [[Northwest Territories]]
+	- 1898: [[Yukon Territory]]
+	- 1905: [[Alberta]], [[Saskatchewan]]
+	- 1949: [[Newfoundland and Labrador]]
+	- 1999: [[Nunavut]]
+- In the 1920's some believed that the [[British West Indies]] should become part of Canada
+	- this did not occur, though Canada and Commonwealth Caribbean countries and territories enjoy close ties today

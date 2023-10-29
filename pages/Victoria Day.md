@@ -1,0 +1,1 @@
+- Monday preceding May 25 ([[Sovereign]]'s birthday)

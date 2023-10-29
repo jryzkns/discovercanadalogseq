@@ -1,0 +1,5 @@
+- Canadians remember the sacrifices of our veterans and brave fallen in all wars up to the present day in which Canadians took part, each year on [[November 11]]
+- Canadians wear the red poppy and observe a moment of silence at the 11th hour of the 11th day of the 11th month
+	- to honor the sacrifices of over a million brave men and women who have served, and the 110,000 who have given their lives
+- Canadian medical officer [[Lieutenant-Colonel John McCrae]] composed the poem [[In Flanders Fields]] in 1915; It is often recited on Remembrance Day
+-

@@ -1,0 +1,1 @@
+- Settlers who came to Canada from the United States during the American Revolution

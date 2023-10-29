@@ -1,0 +1,1 @@
+- the [[Governor General]] in 1892

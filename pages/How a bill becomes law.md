@@ -1,0 +1,7 @@
+- Step 1: First Reading - The [[bill]] is considered read for the first time and is printed
+- Step 2: Second Reading - Members debate the [[bill]]'s principle
+- Step 3: Committee Stage - Committee members study the [[bill]] clause by clause
+- Step 4: Report Stage - Members can make other amendments
+- Step 5: Third Reading - Members debate and vote on the [[bill]]
+- Step 6: Senate - The [[bill]] follows a similar process in the [[Senate]]
+- Step 7: Royal Assent - The [[bill]] receives royal assent after being passed by both Houses

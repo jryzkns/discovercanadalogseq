@@ -1,0 +1,2 @@
+- Party in government that is not the party in power
+- The role is to peacefully oppose and try to improve government proposals

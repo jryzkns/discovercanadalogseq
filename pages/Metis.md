@@ -1,0 +1,3 @@
+- A distinct people of mixed Aboriginal and European ancestry
+- Majority lives in the Prairie provinces
+- Come from both French and English speaking backgrounds and speak their own dialect, Michif

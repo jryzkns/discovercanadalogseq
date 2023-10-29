@@ -1,0 +1,5 @@
+- Descendants of French colonists who began settling in what are now the [[Maritime provinces]] in 1604
+- Between 1755 and 1763, during war between Britain and France, more than 2/3 of the Acadians were deported from their homeland
+- Despite this ordeal, Acadians survived and maintained their unique identity
+- Today, Acadian culture is flourishing and is a lively part of French-Canadians
+-

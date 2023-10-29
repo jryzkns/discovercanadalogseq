@@ -1,0 +1,8 @@
+- In [[Canada]], men and women are equal under the law.
+- [[Canada]]'s openness and generosity do not extend to barbaric cultural practices that tolerate:
+	- spousal abuse
+	- "honour killings"
+	- female genital mutilation
+	- forced marriage
+	- other gender-based violence
+- Those guilty of gender-based violence are severely punished under [[Canada]]'s criminal laws

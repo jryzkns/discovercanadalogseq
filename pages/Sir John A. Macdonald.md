@@ -1,0 +1,6 @@
+- Born in Scotland on January 11, 1815
+- Came to [[Upper Canada]] as a child
+- Was a lawyer in [[Kingston]]
+- A gifted politician and colorful personality
+- Parliament has recognized January 11 as Sir John A. Macdonald Day
+- His Portrait is on the $10 bill

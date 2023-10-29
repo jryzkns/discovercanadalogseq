@@ -1,0 +1,2 @@
+- A reserve officer
+- Hailed as Canada's greatest soldier in [[The First World War]]

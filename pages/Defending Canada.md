@@ -1,0 +1,6 @@
+- There is NO compulsory military service in [[Canada]]
+- Serving in regular [[Canadian Forces]] is a noble way to contribute to [[Canada]] and an excellent career choice
+- You can serve in your local part-time reserves and gain valuable experience, skills, and contacts
+- Young people can learn discipline, responsibility, and skills by getting involved in cadets
+- You make also serve in the Coast Guard or emergency services in your community such as a police force or fire department
+- By helping to protect your community, you follow in the footsteps of Canadians before you who made sacrifices in the service of our country

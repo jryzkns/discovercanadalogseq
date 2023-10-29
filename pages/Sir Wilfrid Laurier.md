@@ -1,0 +1,2 @@
+- The first French-Canadian prime minister since [[Confederation]]
+- Portrait is on the $5 bill

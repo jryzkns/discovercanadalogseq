@@ -1,0 +1,6 @@
+- The basic way of life in English speaking areas was established by hundreds of thousands of:
+	- English settlers
+	- Welsh settlers
+	- Scottish/Irish settlers
+	- soldiers and migrants from the 1600s to the 20th century
+- Generations of pioneers and builders of British origins, as well as other groups, invested and endured hardship in laying the foundations of our country

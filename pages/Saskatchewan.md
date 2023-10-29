@@ -1,0 +1,6 @@
+- once known as the "breadbasket of the world" and the "wheat province"
+- has the world's richest deposits of uranium and potash
+- [[Regina]] is the capital
+- [[Saskatoon]] is its largest city
+-
+-

@@ -1,0 +1,4 @@
+- One of the constitutional foundations of [[Canada]]
+- Accommodated the principles of British institutions to the reality of the province of [[Quebec]]
+- It allowed religious freedom for Catholics and permitted them to hold public office, a practice not then allowed in Britian
+- Restored French civil law while maintaining British criminal law

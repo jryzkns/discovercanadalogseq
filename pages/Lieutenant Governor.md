@@ -1,0 +1,1 @@
+- The [[Sovereign]]'s representative in a given [[provincial government]]

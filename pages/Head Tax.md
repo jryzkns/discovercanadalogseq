@@ -1,0 +1,2 @@
+- A race-based entry fee
+- The Government of Canada apologized in 2006 for this discriminatory policy

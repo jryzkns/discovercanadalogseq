@@ -1,0 +1,1 @@
+- Seen by many as a hero, a defender of [[Metis]] rights and the father of [[Manitoba]]

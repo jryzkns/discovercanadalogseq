@@ -1,0 +1,14 @@
+- After the defeat of [[Napoleon Bonaparte]] 's fleet in the [[Battle of Trafalgar]], the Royal Navy rules the waves
+- The British Empire(including [[Canada]] ), fought to resist [[Napoleon Bonaparte]]'s bid to dominate Europe
+	- Led to American resentment at British interference with their shipping
+- The Americans were lead to believe that it would be easy to conquer Canada
+	- launched an invasion in June 1812
+- The Canadian defense consisted of Canadian volunteers and [[First Nations]], including the [[Shawnee]] people
+- In July 1812, [[Major-General Sir Isaac Brock]] captured Detroit but was killed while defending against an American attack at Queenston Heights near Niagara Falls, a battle the Americans lost
+- In 1813, [[Lieutenant-Colonel Charles de Salaberry]] and 460 soldiers, mostly [[Canadien]]s, turned back 4,000 American invaders at Chateauguay, south of [[Montreal]]
+- In 1813 the Americans burned Government House and Parliament Buildings in [[York]]
+	- In retaliation in 1814, [[Major-General Robert Ross]] led an expedition from [[Nova Scotia]] that burned down the White House and other public buildings in Washington, D.C.
+	- [[Major-General Robert Ross]] died in battle soon afterwards and was buried in [[Halifax]] will full military honors
+- By 1914, the American attempt to conquer [[Canada]] had failed
+	- The British paid for a costly Canadian defense system, including the Citadels at [[Halifax]] and [[Quebec City]], the naval drydocks at [[Halifax]] and [[Fort Henry]] at [[Kingston]]
+-

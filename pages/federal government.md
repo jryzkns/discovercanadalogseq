@@ -1,0 +1,9 @@
+- Responsibilities
+	- defence
+	- foreign policy
+	- interprovincial trade
+	- interprovincial communications
+	- currency
+	- navigation
+	- criminal law
+	- citizenship

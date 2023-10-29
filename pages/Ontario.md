@@ -1,0 +1,12 @@
+- More than 1/3 of Canadians live here (more than 12 million)
+	- Large and culturally diverse population
+- Many work in the service or manufacturing industry
+- Niagara region is known for its vineyards, wines, and fruit crops
+- Ontario farmers raise dairy and beef cattle. poultry, vegetable and grain crops
+- Great lakes between Ontario and United States
+	- Lake Ontario
+	- Lake Erie
+	- Lake Huron
+	- Lake Michigan
+	- Lake Superior
+		- largest freshwater lake in the world

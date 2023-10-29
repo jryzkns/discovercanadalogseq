@@ -1,0 +1,9 @@
+- There are federal, provincial, territorial, and municipal governments in Canada
+- The responsibilities of the federal and provincial governments were defined in 1967 in the [[Constitution Act]]
+- In our federal state, the [[federal government]] takes responsibility for matters of national and international concern
+- The [[provincial government]] s are responsible for a different set of matters
+- The federal government and the provinces share jurisdiction over agriculture and immigration
+- Federalism allows different provinces to adopt policies tailored to their own populations, and gives provinces the flexibility to experiment with new ideas and policies
+- Every province has its own elected Legislative Assembly, like the House of Commons in [[Ottawa]]
+- The three northern territories, which have small populations, do not have the status of provinces
+	- their governments and assemblies carry out many of the same functions

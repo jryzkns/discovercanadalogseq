@@ -1,0 +1,2 @@
+- Founded by [[Dr. Emily Stowe]]
+- The effort by women to achieve the right to vote

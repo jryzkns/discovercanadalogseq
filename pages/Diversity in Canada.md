@@ -1,0 +1,20 @@
+- Canada is often referred to as a land of immigrants because, over the past 200 years, millions of newcomers have helped to build and defend our way of life
+- Many ethnic and religious groups live and work in peace as proud Canadians
+	- The largest groups are English, French, Scottish, Irish, German, Italian, Chinese, Aboriginal, Ukrainian, Dutch, South Asian, Scandinavian
+- Since the 1970s, most immigrants have come from Asian countries
+- Non-official languages are widely spoken in Canadian homes
+	- Chinese is the second most spoken at home (after English) in two of [[Canada]] 's biggest cities
+	- In Vancouver, 13% speak Chinese at home
+	- In Toronto, 7% speak Chinese at home
+- The great majority of Canadians identify as Christians
+	- The largest religious affiliation is Catholic, following by various Protestant churches
+- [[Canada]] has traditionally partnered with faith communities to:
+	- promote social welfare
+	- harmony and mutual respect
+	- provide schools and healthcare
+	- resettle refugees
+	- uphold religious freedom
+- [[Canada]]'s diversity includes gay and lesbian Canadians
+	- access to full protection of and equal treatment under the law
+		- including access of civil marriage
+-

@@ -1,0 +1,3 @@
+- Lord Strathcona
+- Scottish born
+- Director of the [[Canadian Pacific Railway]]

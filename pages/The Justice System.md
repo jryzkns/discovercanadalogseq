@@ -1,0 +1,28 @@
+- The Canadian justice system guarantees everyone due process under the law
+- Founded on the [[presumption of innocence]] in criminal matters
+- Canada's legal system is based on a heritage that includes the rule of law, freedom under the law, democratic principles and [[due process]]
+- Canada is governed by an organized system of laws
+	- written rules intended to guide people in our society
+	- made by elected representatives
+- The law in [[Canada]] applies to everyone, including judges, politicians and the police
+- Laws are intended to provide order in society and a peaceful way to settle disputes, and to express the values and beliefs of Canadians
+- [[Court]] s
+	- The [[Supreme Court of Canada]] is our country's highest court
+	- The [[Federal Court of Canada]] deals with matters concerning the federal government
+	- In most provinces there is an appeal court and a trial court, sometimes called the Court of Queen's Bench or the Supreme Court
+	- There are also provincial courts for lesser offences, family courts, traffic courts, and small claims courts for civil cases involving small sums of money
+- Police
+	- Meant to keep people safe and enforce the law
+	- There are different levels of police in Canada
+		- Federal police force
+			- [[Royal Mounted Canadian Police]]
+		- Provincial police forces
+			- [[Ontario]] and [[Quebec]] has dedicated police forces
+			- Other provinces uses [[Royal Mounted Canadian Police]]
+		- Municipal police forces
+			- sometimes exists or sometimes doesn't (ex. VPD exists but no force in Surrey)
+	- You can also question the police about their service or conduct if you feel you need to
+		- Almost all police forces in Canada have a process by which you can bring your concerns to the police and seek action
+- Legal help
+	- Lawyers can help you with legal problems and act for you in court
+	- If you cannot pay for a lawyer, in most communities there are legal aid services available free of charge or at a low cost

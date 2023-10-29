@@ -1,0 +1,4 @@
+- Lead [[Quebec]] into [[Confederation]]
+- A key architect of [[Confederation]] from [[Quebec]]
+- A railway lawyer, [[Montreal]]er, close ally of [[Sir John A. Macdonald]], and a patriotic [[Canadien]]
+- Helped negotiate the entry of [[Northwest Territories]], [[Manitoba]], and [[British Columbia]] into [[Dominion of Canada]]

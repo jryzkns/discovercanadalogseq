@@ -1,0 +1,4 @@
+- The national anthem
+- proclaimed as the national anthem in 1980
+- First sung in [[Quebec City]] in 1880
+- French and English Canadians sing different words to the national anthem

@@ -1,0 +1,4 @@
+- The beaver was adopted centuries ago as a symbol of the [[Hudson's Bay Company]]
+- It became an emblem of the [[St. Jean Baptiste Society]] in 1834, and was also adopted by other groups
+- Seen on the five-cent coin, a nickel
+- On the Coat of Arms of [[Saskatchewan]], [[Alberta]], and cities such as [[Montreal]] and [[Toronto]]

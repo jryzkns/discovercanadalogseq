@@ -1,0 +1,5 @@
+- "our land" in Inuktitut
+- established in April 1st, 1999 from eastern part of [[Northwest Territories]]
+- Capital is [[Iqaluit]] formerly Frobisher Bay
+- Population is about 85% Inuit
+- Inuktitut is an official language and first language in schools

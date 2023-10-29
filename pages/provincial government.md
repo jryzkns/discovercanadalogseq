@@ -1,0 +1,15 @@
+- Responsibilities
+	- municipal government
+	- education
+	- health
+	- natural resources
+	- property rights
+	- civil rights
+	- highways
+- Each provincial and territorial government has an elected legislature where provincial and territorial laws are passed. Depending on scope/region, members of the legislature are called
+	- members of the Legislative Assembly (MLAs)
+	- members of the National Assembly (MNAs)
+	- members of the Provincial Parliament (MPPs)
+	- members of the house of Assembly (MHAs)
+- In each province, the [[Premier]] has a role similar to that of the [[Prime Minister]] in the federal government, just as the [[Lieutenant Governor]] has a role similar to that of the [[Governor General]]
+- In the three territories, the Commissioner represents the federal government and plays a ceremonial role

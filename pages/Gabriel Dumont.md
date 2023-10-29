@@ -1,0 +1,2 @@
+- Part of the [[Metis]] resistance, he was considered the [[Metis]]'s greatest military leader
+-

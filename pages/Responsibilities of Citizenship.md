@@ -1,0 +1,24 @@
+- As a Canadian citizen, there are a list of responsibilities one needs to uphold:
+	- Obeying the law
+		- One of [[Canada]]'s founding principles is the rule of law
+		- Individuals and governments are regulated by laws and not by arbitrary actions
+		- No person or group is above the law
+	- Taking responsibility for oneself and one's family
+		- Getting a job, taking care of one's family and working hard in keeping with one's abilities are important Canadian values
+		- Work contributes to personal dignity and self-respect, and to Canada's prosperity
+	- Serving on a jury
+		- When called to do so, you are legally required to serve
+		- Serving on a jury is a privilege that makes the justice system work
+			- justice depends on impartial juries made up of citizens
+	- Voting in elections
+		- The right to vote comes with a responsibility to vote in federal, provincial, and local elections
+	- Helping others in the community
+		- Millions of volunteers freely donate their time to help others without pay, doing work such as:
+			- helping people in need
+			- assisting at your child's school
+			- volunteering at a food bank or other charity
+			- encourage newcomers to integrate
+		- Volunteering is an excellent way to gain useful skills and develop friends and contacts
+	- Protecting and enjoying our heritage and environment
+		- Every citizen has a role to play in avoiding waste and pollution while protecting Canada's natural, cultural, and architectural heritage for future generations
+	-

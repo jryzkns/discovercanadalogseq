@@ -1,0 +1,3 @@
+- the national police force and one of Canada's best-known symbols
+- aka "the Mounties"
+- Some of Canada's most colourful heroes, such as [[Major-General Sir Sam Steele]], came from the ranks of the Mounties

@@ -1,0 +1,8 @@
+- The Crown has been a symbol of the state in Canada for 400 years
+- Canada has been a [[Constitutional Monarchy]] in its own right since [[Confederation]] in 1867 during [[Queen Victoria]]'s reign
+- Symbol of government, including
+	- parliament
+	- legislature
+	- courts
+	- police services
+	- Canadian Forces

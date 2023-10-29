@@ -1,0 +1,5 @@
+- The first Movement to abolish the transatlantic slave trade emerged in the British Parliament in the late 1700s
+- In 1793, [[Upper Canada]] led by [[Lieutenant Governor John Graves Simcoe]], a [[Loyalist]] military officer, became the first province in the Empire to move toward abolition
+- In 1807, the British Parliament prohibited the buying and selling of slaves
+- In 1833,  slavery was abolished throughout the Empire
+-

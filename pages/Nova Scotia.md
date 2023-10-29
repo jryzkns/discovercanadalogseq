@@ -1,0 +1,11 @@
+- Most populous Atlantic province
+- rich history as the gateway to Canada
+- Known for the world's largest tides in the Bay of Fundy
+- Province identity is linked to shipbuilding, fisheries, and shipping
+- Canada's largest east coast port, deep water and ice-free
+- [[Halifax]] played an important role in Atlantic trade and defence and is home to Canada's largest naval base
+- Long history of coal mining, forestry, and agriculture
+- offshore and gas exploration
+- Celtic and Gaelic traditions sustain a vibrant culture
+- home to 700 annual festivals
+	- including the spectacular military tattoo in Halifax

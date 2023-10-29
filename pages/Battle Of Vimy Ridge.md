@@ -1,0 +1,4 @@
+- The [[Canadian Corps]] captured [[Vimy Ridge]] in April 1917
+- with 10,000 killed or wounded, securing Canadia's reputation for valor as the "shock troops of the British Empire"
+- One Canadian officer said "It was Canada from the Atlantic to the Pacific on Parade ... in those few minutes I witnessed the birth of a nation"
+- [[April 9]] is celebrated as [[Vimy Day]]

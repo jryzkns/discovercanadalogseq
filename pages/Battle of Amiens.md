@@ -1,0 +1,2 @@
+- August 8, 1918
+- The Germans called this day "the black day of the German Army"

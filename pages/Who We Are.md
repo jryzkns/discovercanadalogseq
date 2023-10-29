@@ -1,0 +1,15 @@
+- [[Canada]] is known around the world as a strong and free country
+- Canadians are proud of their unique identity
+- We have inherited the oldest continuous constitutional tradition in the world
+- We are the only constitutional monarchy in [[North America]]
+- Our institutions uphold a commitment to Peace, Order and Good Government, a key phrase in [[Canada]]'s original constitutional document in 1867, the British North America Act
+- A belief in ordered liberty, enterprise, hard work and fair play has enabled Canadians to build a prosperous society in a rugged environment from our Atlantic shores to the Pacific Ocean and to the Arctic Circle
+	- So much so that poets and songwriters have hailed [[Canada]] as the [[Great Dominion]]
+- [[Canada]] has 3 found peoples:
+	- [[Aboriginal Peoples]]
+	- [[English-Canadians]] and [[French-Canadians]]
+		- Canadian society today stems largely from the English-speaking and French-speaking Christian civilizations that were brought here from Europe by settlers
+		- English and French define the reality of day-to-day life for most people and are the country's official languages
+		- The federal government is required by law to provide services throughout [[Canada]] in English and French
+		- There are 18 million [[English-Canadians]]and 7 million [[French-Canadians]]
+- In addition to the founding people, we have a great amount of [[Diversity in Canada]]

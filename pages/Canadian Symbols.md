@@ -1,0 +1,47 @@
+- Canada has many important symbols- objects, events, and people that have special meaning
+- Together they help explain what it means to be Canadian and express our national identity
+- [[The Canadian Crown]]
+- Flags in Canada
+	- A new Canadian flag was raised for the first time in 1965
+	- The red-white-red pattern comes from the flag of the Royal Military College, [[Kingston]], founded in 1876
+	- Red and white had been colors of France and England since the Middle Ages and the national colors of Canada since 1921
+	- The Union Jack is our official Royal Flag
+	- The Canadian Red Ensign served as the Canadian flag for about 100 years
+	- The provinces and territories also have flags that embody their distinct traditions
+- [[The Maple Leaf]]
+- [[The Fleur de Lys]]
+- Coat of Arms and Motto
+	- As an expression of national pride after [[The First World War]], Canada adopted an official coat of arms and a national motto
+	- [[A Mari Usque Ad Mare]]
+	- The arms contain symbols of England, France, Scotland, Ireland as well as red maple leaves
+		- Today it can be seen on dollar bills, government documents, and public buildings
+- Parliament Buildings
+	- The towers, arches, sculptures and stained glass of the Parliament buildings embody the French, English, and Aboriginal traditions and the Gothic Revival architecture popular in the time of [[Queen Victoria]]
+	- The buildings were completed in the 1860s
+	- The Centre Block was destroyed by an accidental fire in 1916 and rebuilt in 1922
+	- The Library is the only part of the original building remaining
+	- The Peace Tower was completed in 1927 in memory of [[The First World War]]
+	- The Memorial Chamber within the Tower contains the Books of Remembrance in which are written then names of soldiers, sailors, and airmen who died serving Canada in wars or while on duty
+- Popular Sports
+	- [[Hockey]] is Canada's most popular spectator sport and is considered to be the national winter sport
+	- Canadian football is the second most popular sport
+		- similar but differs in a number of ways from America football
+	- Curling, an ice game introduced by Scottish pioneers
+	- Lacrosse is the official summer sport
+		- an ancient sport first played by Aboriginals
+	- Soccer has the most registered players of any game in Canada
+- [[The Beaver]]
+- Canada's Official Languages
+	- English and French are the two official languages and are important symbols of identity
+	- Anglophones and Francophones have lived together in partnership and creative tension for more than 300 years
+	- Parliament passed the [[Official Languages Act]] in 1969
+- [[O Canada]] and [[God save the King]] are notable anthems of Canada
+- Canada has its own honor system and awards outstanding citizens with honors such as the [[Order of Canada]] or the [[Victoria Cross]]
+- Notable National Public Holidays
+	- [[Sir John A. Macdonald Day]]
+	- [[Vimy Day]]
+	- [[Victoria Day]]
+	- [[Canada Day]]
+	- [[Remembrance Day]]
+	- [[Sir Wilfrid Laurier Day]]
+-

@@ -1,0 +1,2 @@
+- Language of [[Inuit]]
+- One of the official languages and the first language in schools in [[Nunavut]]

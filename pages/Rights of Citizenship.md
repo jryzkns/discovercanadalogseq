@@ -1,0 +1,9 @@
+- Canadian law has several sources, including:
+	- laws passed by [[Parliament]] and provincial [[legislature]] s
+	- [[English common law]]
+	- Civil Code of France
+	- Unwritten constitution from Great Britain
+- [[Magna Carta]]
+- Canadian law constitutes the following broad categories:
+- [[Habeas corpus]] comes from [[English common law]]
+- The Constitution of Canada was amended in 1982 to entrench the [[Canadian Charter of Rights and Freedom]]

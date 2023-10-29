@@ -1,0 +1,6 @@
+- originally made up in 1870 from rupert's land
+- diamond capital of north america
+- more than half of population is Aboriginal
+- Mackenzie river (4,200 km) second longest river system in North America after Missisippi
+-
+-

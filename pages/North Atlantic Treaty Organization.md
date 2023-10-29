@@ -1,0 +1,2 @@
+- NATO
+- a military alliance

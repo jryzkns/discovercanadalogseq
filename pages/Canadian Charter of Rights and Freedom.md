@@ -1,0 +1,16 @@
+- Became part of the Constitution in 1982
+- Starts with "Whereas  [[Canada]]  is  founded  upon  principles  that recognize the supremacy of God and the rule of law."
+	- underlines the importance of religious traditions to Canadian society and the dignity and worth of the human person
+- Attempts to summarize fundamental freedoms while also setting out additional rights
+	- Mobility Rights
+		- Canadians can live and work anywhere they choose in [[Canada]]
+		- enter/leave the [[Canada]] freely
+		- apply for a passport
+	- [[Aboriginal Peoples]]  Rights
+		- The rights guaranteed in the Charter will not adversely affect any treaty or other rights or freedoms of [[Aboriginal Peoples]]
+	- Official Language Rights and Minority Language Educational Rights
+		- French and English have equal status in [[Parliament]] and throughout the government
+	- Multiculturalism
+		- A fundamental characteristic of the Canadian heritage and identity
+		- Canadians celebrate the gift of one another's presence
+		- Canadians work hard to respect pluralism and live in harmony

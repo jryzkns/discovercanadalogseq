@@ -1,0 +1,8 @@
+- Most populous Prairie province
+- Lake Louise
+- Rocky Mountains
+- 5 national parks (including banff national park)
+- houses some of the world's richest deposits of prehistoric fossils and dinosaur finds
+- largest producer of oil and gas
+- renowned for agriculture, especially for the vast cattle ranches
+	- makes Canada one of the world's major beef producers

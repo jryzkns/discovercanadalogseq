@@ -1,0 +1,28 @@
+- Marchall McLuhan, Harold Innis were pioneer thinkers
+- Nobel Prize-winning scientists
+	- Gerhard Herzberg
+		- Refugee from Nazi Germany
+	- John Polanyi
+	- Sidney Altman
+	- Richard E. Taylor
+	- Michael Smite
+	- Bertram Brockhouse
+- Sir Fredrick Banting & Charles Best
+	- Discovered Insulin
+- Alexander Graham Bell
+	- hit on the idea of the telephone at his summer house in Canada
+- Joseph-Armand Bombardier
+	- invented the snowmobile, a lightweight winter vehicle
+- Sir Sandford Fleming
+	- invented the worldwide system of standard time zones
+- Matthew Evans & Henry Woodward
+	- together invented the first electric light bulb and later sold the patent to Thomad Edison who more famously commercialized the light bulb
+- Reginald Fessenden
+	- contributed to the invention of radio, sending the first wireless voice message in the world
+- Dr. Wilder Penfield
+	- a pioneering brain surgeon at McGill University in Montreal
+	- known as "the greatest living Canadian"
+- Dr. John A. Hopps
+	- invented the first cardia pacemaker, used today to save the lives of people with heart disorders
+- Mike Lazaridis & Jim Balsillie (of Research in Motion)
+	- invented BlackBerry

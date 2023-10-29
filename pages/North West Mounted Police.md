@@ -1,0 +1,5 @@
+- Founded by [[Sir John A. Macdonald]]
+- Founded [[Fort Calgary]], [[Fort MacLeod]] and other centres that today are cities and towns
+- Headquartered in [[Regina]]
+- Superceded by the [[Royal Mounted Canadian Police]]
+-

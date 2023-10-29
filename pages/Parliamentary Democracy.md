@@ -1,0 +1,21 @@
+- In Canada's parliamentary democracy, the people elect members to the House of Commons in Ottawa and to the provincial and territorial legislatures
+- Representatives are responsible for
+	- passing laws
+	- approving expenditures
+	- monitoring expenditures
+	- keeping the government accountable
+- Cabinet ministers are responsible to the elected representatives
+	- must retain the "confidence of the house"
+	- have to resign if they are defeated in a non-confidence vote
+- Parliament has three parts
+	- The [[Sovereign]]
+	- The [[Senate]]
+	- The [[House of Commons]]
+- Provincial legislatures comprise the [[Lieutenant Governor]] and elected Assembly
+- In the federal government, the Prime Minister selects the Cabinet ministers and is responsible for the operations and policy of the government
+- The House of Commons is the representative chamber, made up of members of Parliament elected by the people, traditionally every four years
+- Senators are appointed by the Governor General on the advice of the Prime Minister and serve until age 75
+- Both the [[House of Commons]] and the [[Senate]] consider and review [[bill]]s
+- No [[bill]] can become law in Canada until it has been passed by both chambers and has received royal assent, granted by the Governor General on behalf of the [[Sovereign]]
+- Living in a democracy, Canadian citizens have the right and the responsibility to participate in making decisions that effect them
+	- It is important for Canadians aged 18 or more to participate in their democracy by voting in federal, provincial, or territorial and municipal elections

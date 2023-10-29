@@ -1,0 +1,43 @@
+- [[Confederation]]
+	- Canada's first Prime Minister is [[Sir John A. Macdonald]] one of the [[Fathers of Confederation]]
+- Challenges expanding west
+	- When Canada took over the vast northwest region from [[Hudson's Bay Company]] in 1869, the 12,000 [[Metis]] of the Red River were not consulted
+		- In response, [[Louis Riel]] led an armed uprising and seized [[Fort Garry]], the territorial capital
+		- Canada's future was in jeopardy, the Dominion could not reach from sea to sea if the interior is out of control
+		- [[Ottawa]] sent soldiers to retake [[Fort Garry]] in 1870
+		- [[Louis Riel]] fled to the [[United States]] and [[Canada]] established a new province: [[Manitoba]]
+		- [[Louis Riel]] was elected to Parliament but never too his seat
+	- Later, as [[Metis]] and Indian rights were again threatend by westward settlement, a second rebellion in 1885 in present-day [[Saskatchewan]] led to [[Louis Riel]]'s trial and execution for high treason, a decision that was strongly opposed in [[Quebec]]
+	- After the first [[Metis]] uprising, [[Sir John A. Macdonald]] established the [[North West Mounted Police]] in 1873 to pacify the West and assist in negotiations with the indians
+- Moving Westward
+	- Canada's economy grew and became more industrialized during the economic boom of the 1890's and early 1900's
+		- One million British and one million Americans immigrated to Canada at this time
+	- [[Sir Wilfrid Laurier]] encouraged immigration to the West
+	- [[Canadian Pacific Railway]]
+		- [[British Columbia]] joined Canada in 1871 after [[Ottawa]] promised to build a railway to the [[West Coast]]
+		- Enabled immigrants to settle in the West before 1914 and develop a thriving agricultural sector
+- [[The First World War]] and some other wars were key to a sense of national pride for Canada
+	- Most Canadians were proud to be part of the British Empire, over 7,000 volunteered to fight in the [[Boer War]], and over 260 died
+	- In 1900, Canadians took part in and were victorious in the [[Battle of Paardeberg]] and [[Battle of Lillefontein]]
+- Voting rights for Women
+	- At the time of [[Confederation]], the vote was limited to property owning adult white males
+		- common practice in most democratic countries at the time
+	- [[Women's Suffrage Movement]]
+	- [[Manitoba]] became the first province to grant voting rights to women
+	- In 1917, thanks to the leadership of women such as [[Dr. Emily Stowe]] and other [[suffragette]] s, the federal government of [[Sir Robert Borden]] gave women the right to vote in federal election
+		- First to nurses at the battle front, then to women who were related to men in active wartime service
+	- In 1918, most Canadian female citizens aged 21 and over were granted the right to vote in federal elections
+	- In 1921, [[Agnes Macphail]], a farmer and teacher, became the first woman MP
+	- Due to the work of [[Therese Casgrain]] and others, [[Quebec]] granted women the right to vote in 1940
+- Between the wars
+	- After [[The First World War]] , the British Empire evolved into a free association of states known as the British Commonwealth of Nations
+	- Canada remains a leading member of the Commonwealth to this day, together with other successor states of the Empire such as India, Australia, New Zealand, and several African and Caribbean countries
+	- The "Roaring Twenties" were boom times, with prosperity for businesses and low employment
+	- The stock market crash of 1929 lead to the Great Depression or the "Dirty Thirties"
+		- Unemployment reached 27% in 1933 and many businesses were wiped out
+		- Farmers In Western Canada were hit hardest by low grain prices and a terrible drought
+	- There was growing demand for the government to create a social safety net with minimum wages, a standard work week, and programs such as unemployment insurance
+		- The [[Bank of Canada]] , a central bank to manage the money supply and bring stability to the financial system, was created in 1934
+	- Immigration dropped and many refugees were turned away, including Jews trying to flee Nazi Germany in 1939
+- [[The Second World War]]
+- Moving forward to [[Modern Canada]]

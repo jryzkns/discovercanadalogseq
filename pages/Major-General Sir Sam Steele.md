@@ -1,0 +1,1 @@
+- A great frontier hero, [[Royal Mounted Canadian Police]], and soldier

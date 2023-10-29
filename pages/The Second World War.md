@@ -1,0 +1,21 @@
+- The Second World War began in 1939 when Adolf Hitler, the National Socialist (Nazi) dictator of Germany, invaded Poland and conquered much of Europe
+- Canada joined with its democratic allies in the fight to defeat tyranny by force of arms
+- More than 1 million Canadians and Newfoundlanders (at the time, still a separate British entity) served in the war, out of a population of 11.5 million
+	- This was a high proportion and of these, 44,000 were killed
+- The Canadians fought bravely and suffered losses in the unsuccessful defense of Hong Kong (1941) from attack by Imperial Japan, and in a failed raid on Nazi-controlled Dieppe on the coast of France (1942)
+- The [[Royal Canadian Air Force]] took part in the [[Battle of Britain]] and provided a high proportion of Commonwealth aircrew in bombers and fighter planes over Europe
+- Canada contributed more to the Allied air effort than any other Commonwealth country, with over 130,000 Allied air crew trained in Canada under the British Commonwealth Air Training Plan
+- The [[Royal Canadian Navy]] saw its finest hour in the [[Battle of the Atlantic]], protecting convoys of merchant shops against German submarines
+	- Canada's Merchant Navy helped to feed, clothe, and resupply Britain
+- At the end of the war, Canada had the third largest navy in the world
+- In the Pacific war, Japan invaded the Aleutian Islands, attacked a lighthouse on Vancouver Island, launched fire balloons over BC and the prairies, and grossly maltreated Canadian prisoners of war captured at Hong Kong
+	- Japan surrendered on August 14, 1945, the end of four years of war in the Pacific
+- Regrettably, the state of war and public opinion in BC led to the forcible relocation of Canadians of Japanese origin by the federal government and the sale of their property without compensation
+	- This occurred even though the military and the [[Royal Mounted Canadian Police]] told [[Ottawa]] that they posed little danger to [[Canada]]
+	- The Government of Canada apologized in 1988 for wartime wrongs and compensated the victims
+- The D-Day Invasion, June 6, 1944
+	- In order the defeat Nazism and Fascism, the Allies invaded Nazi-occupied Europe
+	- Canadians took part in the liberations of Italy in 1943-1944
+	- In the epic invasion of Normandy in northern France on June6, 1944 known as D-Day, 15,000 Canadian troops stormed and captured Juno Beach from the German Army
+	- Approximately 1 in ten Allied soldiers on D-Day was Canadian
+	- The Canadian Army liberated the Netherlands in 1944-1945 and helped force the German surrender of May 8, 1945, bringing to an end six years of war in Europe

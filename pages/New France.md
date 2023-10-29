@@ -1,0 +1,9 @@
+- In 1604, the first European settlement north of Florida was established by French explorers [[Pierre de Monts]] and [[Samuel de Champlain]]
+- First settles on St. Croix Island (present day Maine), then at Port-Royal, in Acadia (present day [[Nova Scotia]])
+- In 1608 [[Samuel de Champlain]] built a fortress at what is now [[Quebec]] city
+- The colonists struggled against a harsh climate
+- [[Samuel de Champlain]] allied the colony with the [[Algonquin]], [[Montagnais]], [[Huron-Wendat]], historic enemies of the Iroquois to form a confederation of five (later 6) [[First Nations]]
+	- Battled the [[Iroquois]] for a century
+	- Peace was made between the [[Iroquois]] and French in 1701
+- French and [[Aboriginal Peoples]] collaborated in the vast fur-trade economy, driven by demand for beaver pelts in Europe
+- Outstanding leaders like [[Jean Talon]], [[Bishop Laval]], [[Count Frontenac]] built a French Empire in [[North America]] that reached from [[Hudson Bay]] to the [[Gulf of Mexico]]

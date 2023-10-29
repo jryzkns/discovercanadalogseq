@@ -1,0 +1,7 @@
+- Canada participated in the [[United Nations]] operation defending South Korea in the [[Korean War]] (1950-1953)
+- Canada has also taken part in numerous peacekeeping missions such as
+	- Egypt
+	- Cyprus
+	- Haiti
+	- former Yugoslavia
+	- Afghanistan

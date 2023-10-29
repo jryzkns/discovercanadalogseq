@@ -1,0 +1,3 @@
+- highest military honor available to Canadians
+- awarded for the most conspicuous bravery, a daring or pre-eminent act of valor or self-sacrifice, or extreme devotion to duty in the presence of the enemy
+- been awarded to 96 Canadians since 1854

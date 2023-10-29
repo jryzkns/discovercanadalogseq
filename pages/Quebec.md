@@ -1,0 +1,4 @@
+- Nearly 8 million live in in Quebec
+	- vast majority along/near St. lawrence River
+- More than 3/4 speak French as first language
+- main producer of pulp and paper and hydro-electricity

@@ -1,0 +1,2 @@
+- The body of soldiers [[Ottawa]] assembled to join the first world war
+- Later known as the [[Canadian Corps]]

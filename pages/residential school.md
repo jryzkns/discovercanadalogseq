@@ -1,0 +1,6 @@
+- Schools set up to educate and assimilate Aboriginal children into mainstream Canadian culture
+- poorly funded
+- inflicted hardship on students
+	- some where physically abused
+- Aboriginal languages and cultural practices were mostly prohibited
+- In 2008, Ottawa formally apologized to the former students

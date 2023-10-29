@@ -1,0 +1,2 @@
+- The 26th [[Governor General]]
+	- The first of Asian origin

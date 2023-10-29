@@ -1,0 +1,8 @@
+- The most easterly point in [[North America]]
+- has its own time zone
+- has a unique heritage linked to the sea
+- oldest colony of the British empire and a strategic prize in Canada's early history
+- long known for fisheries, coastal fishing villages, and distinct culture
+- off shore oil and gas extraction contributes a substantial part of the economy
+- Labrador also has immense hydro-electric resources
+- Last province to join Canada

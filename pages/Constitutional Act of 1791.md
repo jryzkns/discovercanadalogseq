@@ -1,0 +1,4 @@
+- Divided the then [[Province of Quebec]] into [[Upper Canada]] and [[Lower Canada]]
+	- The Atlantic British colonies along with [[Upper Canada]] and [[Lower Canada]] were collectively known as [[British North America]]
+- Granted to the Canadians, for the first time, legislative assemblies elected by the people
+- The name [[Canada]] also became official at this time and has been used ever since

@@ -1,0 +1,21 @@
+- Donovan Bailey
+	- world record sprinter and double Olympic gold medalist In 1996 at the Olympic Summer Games
+- Chantal Petitclerc
+	- world champion wheelchair racer and Paralympic gold medalist
+- Wayne Gretzky
+	- One of the greatest hockey players of all time
+	- played for the Edmonton Oilers from 1979 to 1988
+- Terry Fox
+	- from [[British Columbia]]
+	- lost his right leg to cancer at age of 18
+	- Began a cross-country run "the Marathon of Hope" to raise money for cancer research
+	- Considered a Canadian Hero
+	- Did not finish his run and ultimately lost his battle with cancer, his legacy continues through yearly fundraising events in his name
+- Rick Hansen
+	- from [[British Columbia]]
+	- circled the globe in a wheelchair to raise funds for spinal cord research
+- Mark Tewksbury
+	- olympic gold medalist
+	- prominent activist for gay and lesbian Candians
+	-
+-

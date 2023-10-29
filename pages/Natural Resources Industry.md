@@ -1,0 +1,5 @@
+- Forestry
+- Fishing
+- Agriculture
+- mining
+- energy

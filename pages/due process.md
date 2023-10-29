@@ -1,0 +1,1 @@
+- The principle that the government must respect all the legal rights a person is entitled to under the law

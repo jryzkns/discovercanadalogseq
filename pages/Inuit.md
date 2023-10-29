@@ -1,0 +1,3 @@
+- Stands for "the people" in the [[Inuktitut]] language
+- live in small and scattered communities across the Arctic
+- Their knowledge of the land, sea, and wildlife enable them to adapt to one of the harshest environments on earth

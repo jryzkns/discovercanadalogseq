@@ -1,0 +1,5 @@
+- On November 7, 1885, a powerful symbol of unity was completed when [[Donald Smith]] drove the last spike
+- The project was financed by British and American investors and built by both European and Chinese labour
+	- Afterwards the Chinese were subject to discrimination, including the [[Head Tax]]
+- After many years of heroic work, the CPR's "ribbons of steel" fulfilled a national dream
+-

@@ -1,0 +1,16 @@
+- A Trading Nation
+	- Canada has always been a trading nation and commerce remains the engine of economic growth
+	- As Canadians, we could not maintain our standard of living without engaging in trade with other nations
+	- In 1988, Canada enacted free trade with the United State. Mexico became a partner in 1994 in the broader [[North American Free Trade Agreement]], with over 444 million people and over $1 trillion in merchandise trade in 2008
+	- Today, Canada has one of the ten largest economies in the world and is part of the [[G8]] group of leading industrialized countries
+- Canada's economy includes three main types of industries
+	- [[Service Industry]]: more than 75% of working Canadians work here
+	- [[Manufacturing Industry]]: make products to sell in Canada and around the world
+	- [[Natural Resources Industry]]
+		- plays an important in the country's history and development
+		- Large percentage of Canada's exports are natural resources commodities
+- Canada enjoys close relations with the [[United States]] and each is the other's largest trading partner
+	- Over three-quarters of Canadian exports are destined for the [[United States]]
+	- The [[Canada]]- [[United States]] trading relationship is the strongest bilateral trading relationship in the world
+	- Millions of Canadians and Americans cross every year and in year safety what is traditionally known as "the world's longest undefended border"
+	- At Blaine in the State of Washington, the [[Peace Arch]], inscribed with the words "children of a common mother" and "brethren dwelling together in unity" symbolizes our close ties and common interests

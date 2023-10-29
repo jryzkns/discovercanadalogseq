@@ -1,0 +1,25 @@
+- The term "Aboriginal peoples" refers to three distinct groups:
+	- [[First Nations]]
+	- [[Inuit]]
+	- [[Metis]]
+	- About 65% of [[First Nations]], 30% are [[Metis]], and 4% [[Inuit]]
+- The ancestors of Aboriginal peoples are believed to have migrated from Asia many thousands of years ago
+	- Well established long before explorers from Europe first came to [[North America]]
+- Diverse, vibrant First Nations cultures were rooted in religious beliefs about their relationship to:
+	- the Creator
+	- the natural environment
+	- each other
+- Aboriginal and treaty rights are in the Canadian [[Constitution]]
+- Territorial rights were first guaranteed through the [[Royal Proclamation of 1763]]
+- From the 1800s until the 1980s, the federal government placed many Aboriginal children in [[residential school]] s
+- In today's [[Canada]], Aboriginal peoples enjoy renewed pride and confidence, and have made significant achievements in agriculture, the environment, business and the arts
+- Lived off the land, some by hunting and gathering, others by raising crops:
+	- The [[Huron-Wendat]] of the Great Lakes region, like the [[Iroquois]] , were farmers and hunters
+	- The [[Cree]] and [[Dene]] of the Northwest were hunter-gatherers
+	- The [[Sioux]] were nomadic, following the bison/buffalo herd
+	- The [[Inuit]] lived off Arctic wildlife
+	- West Coast natives preserved fish by drying and smoking
+- Warfare was common among Aboriginal groups as they competed for land, resources, and prestige
+- The arrival of European traders, missionaries, soldiers and colonists changed the native way of life forever
+- Large numbers of [[Aboriginal Peoples]] died of European diseases to which they lacked immunity
+- With the Europeans settlers, formed a strong economic, religious, and military bond in the first 200 years of coexistence which laid the foundations of Canada

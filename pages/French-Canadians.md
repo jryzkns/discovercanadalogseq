@@ -1,0 +1,2 @@
+- Majority live in [[Quebec]], 1 million Franchophones live in [[Ontario]], [[New Brunswick]], [[Manitoba]]
+- Primarily consists of [[Acadian]]s and [[Quebecer]]s
